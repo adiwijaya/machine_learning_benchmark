@@ -33,3 +33,6 @@ Setup
 
 Results
 
+-- IT'S ON GOING PROJECT --
+-- THANK YOU FOR YOUR PATIENCE --
+-- CHEERS --
